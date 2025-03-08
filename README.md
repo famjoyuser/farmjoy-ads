@@ -1,1 +1,0 @@
-# farmjoy-ads
